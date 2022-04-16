@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Vikramvhp
+- 👀 I’m interested in Learning new things
+- 🌱 I’m currently learning data science 
+- 💞️ I’m looking to collaborate on Improving Codes to help the business
+- 📫 How to reach me : Vikramvhp@gmail.com / 8296686312
+- 🚗 I like to travel , play cricket, watch movies in my free hours
+- 🗣Very good In communication 
+- 👨🏼‍✈️I would like to Lead or Guide a group towards achieving common goals.
